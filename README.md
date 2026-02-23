@@ -84,4 +84,4 @@ Author
 Richard Ishimwe
 Frontend Developer | Year II Computer Science
 Rubavu District, Western Province, Rwanda
- richard.ishimwe@example.com | 📞 +250 788 90 30 30
+ ishimwerichard99@gmail.com | 📞 +250 798576539
